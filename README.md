@@ -1,0 +1,1 @@
+# Exploring-Global-Socio-Economic-and-Environmental-Trends-2010-2023-
